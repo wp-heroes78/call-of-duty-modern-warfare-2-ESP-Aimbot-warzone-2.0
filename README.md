@@ -2,7 +2,7 @@
 Call of duty modern warfare 2 &amp; Warzone 2.0 - Aimbot, ESP, Spinbot &amp; more! Regularly updated - Made with love and code.
 
 
-![image](https://github.com/wp-heroes78/Best-Paint-Sprayers-for-home/blob/main/VwPeBZP.jpg?raw=true)
+![image](https://raw.githubusercontent.com/wp-heroes78/Best-Paint-Sprayers-for-home/main/1633612841_mw2wallhacks.webp.fc2eeeb1a0e01f48cb1e82c6965a7075.webp)
 
 
 -----------------------------------------------------------------------------------------------------------------------
